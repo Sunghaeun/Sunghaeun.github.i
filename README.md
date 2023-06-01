@@ -1,3 +1,3 @@
 # Sunghaeun.github.io
 
-welcome to haeun github
+welcome to haeun's github~
